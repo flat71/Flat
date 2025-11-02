@@ -1,1 +1,4 @@
-# Flat
+
+Eu sou teólogo, historiador e educador com ampla experiência acadêmica e ministerial. Bacharel em Teologia, com especialização em língua hebraica, grega e latim, licenciado em História e Pedagogia pela Universidade Estadual de Maringá (UEM), onde também concluí o mestrado em História e Historiografia e a pós-graduação em História e Sociedade. Além disso, sou graduado em Letras – Língua e Literatura Portuguesa, especialista no ensino de Língua Portuguesa e em Religiosidade, e doutor em Teologia, História e Literatura.
+Atuo como pastor há mais de 33 anos e possuo ampla trajetória docente. Fui professor do Seminário Presbiteriano de Cianorte (AEEB) de 1993 a 2024, lecionando nas áreas de História e Exegese. Lecionei também na Universidade Estadual de Maringá (2012–2013), na UNICESUMAR (2011) e na rede pública de ensino de Cianorte (2017).
+Sou graduando em Análise e Desenvolvimento de Sistemas, buscando integrar minha sólida base humanística e teológica ao campo da tecnologia e inovação educacional.
